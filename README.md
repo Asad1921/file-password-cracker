@@ -14,7 +14,7 @@ Optional Brute Force Attack: Includes a limited brute force mode that systematic
 
 
 
-https://asadkhan.kesug.com/zaad/crackv1/
+https://asadkhan.kesug.com/Old/zaad/crackv1/
 
 
 Key Features
